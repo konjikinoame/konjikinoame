@@ -75,7 +75,9 @@ https://s.awa.fm/album/59cecc62bddfe3781455
 
 ＜ Song Title ＞  
 Golden Smoke in the Far Distance  
+(Japanese Title: Konjiki no ame)
 
+　
 
 ＜ Songwriting / Vocal ＞  
 Songwriting: InitialY / Voval: Momiji  
