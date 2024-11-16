@@ -85,17 +85,17 @@ Songwriting: InitialY / Voval: Momiji
 　
 
 ＜ Music Streaming URL ＞  
-・Apple Music (Also available at iTunes Store)  
+･Apple Music (Also available at iTunes Store)  
 https://music.apple.com/jp/album/%E9%87%91%E8%89%B2%E3%81%AE%E7%85%99%E9%9C%9E-single/1772016503  
-・YouTube Music (You can listen to all of them unregistered)  
+･YouTube Music (You can listen to all of them unregistered)  
 https://music.youtube.com/browse/MPREb_xi09mN9JEZk  
-・Amazon Music  
+･Amazon Music  
 https://music.amazon.co.jp/albums/B0DJ8JM15Y  
-・LINE MUSIC  
+･LINE MUSIC  
 https://music.line.me/webapp/album/mb0000000003e865ac  
-・Spotify  
+･Spotify  
 https://open.spotify.com/intl-ja/album/1PfAXUTCeecxAg35Hoe816  
-・AWA  
+･AWA  
 https://s.awa.fm/album/59cecc62bddfe3781455  
 
 　
